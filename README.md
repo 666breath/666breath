@@ -1,16 +1,24 @@
-## Hi there 👋
+## BASIC INFO -----
 
-<!--
-**666breath/666breath** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+જ⁀➴ - I go by Elliot / Guest.
 
-Here are some ideas to get you started:
+જ⁀➴ Swedish / English.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+જ⁀➴ Taken! Please no flirts unless i know we are joking.
+
+જ⁀➴ I Have Autism , Please let me know if you're mad. lolol.
+
+જ⁀➴I am dyslexic. So If i take slow to reply at large texts , Give me a moment.
+
+જ⁀➴ I'M HYPERFIXATED ON : Forsaken , SpookyMonth , ETC right now.
+
+જ⁀➴ I am a huge horror fan. I love horror movies , games , etc. ( MAINLY scream and halloween fan , I have a bunch of merch of those two. )
+
+## >ᴗ< PONY TOWN --
+
+┆ ⤿ 💌 ⌗ - C + H is okay. I am mainly AFK so if i don't respond hit me with a WHISPER TO INTERACT ( W2I ) 
+
+┆ ⤿ 💌 ⌗ - MAINLY at forsaken , Bakery , Libary , By trees areas.
+
+┆ ⤿ 💌 ⌗ I don't bite , But if i seem " agressive " its just how i type , Let me know you don't like it and i'll stop.
+
